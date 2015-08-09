@@ -1,2 +1,2 @@
 # hello-world
-kijken wat het word
+ik ben christ en heb dit veranderd om te leren 
